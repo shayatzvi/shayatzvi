@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @shayatzvi
 - 👀 I’m interested in doing nothing
 - 🌱 I’m currently learning nothing
-- 💔 I’m looking to collaborate on nothing
+- 💔 I’m looking to collaborate on my new thing called KiddushWare
 - 📫 How to reach me: Email johndoehamelech770@gmail.com 
 - 🍕i enjoy pizza
 - ⏰ I basically spend my time making stupid things, so don't question what I have made.
