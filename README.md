@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shayatzvi
 - 👀 I’m interested in doing nothing
-- 🌱 I’m currently learning HTML/CSS/JS
+- 🌱 I’m currently learning nothing
 - 💔 I’m looking to collaborate on nothing
 - 📫 How to reach me: Email johndoehamelech770@gmail.com 
 - 🍕Food tastes good
